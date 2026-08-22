@@ -42,23 +42,20 @@ Stage Setup, Breathing Exercise & Welcome
 ( Walk onto the stage with a warm, confident smile. Step up to your brewing station and make direct eye contact with each judge.)
 Welcome & Shared Breathing
 
-Good morning, judges.
-I feel so excite to be here today, after a long journey
 
-( Do it slowly, a bit out loud, truly enjoy it yourself, so you can affect others )
+Hello judges! I’m Tuấn from Da Nang, a beautiful coastal city, where life reminds us every day to slow down and enjoy the present moment
+So I was brewing coffee as a hobby. In those quiet moment, I simply feel the enjoyment
+And you can see that enjoyment across every stage in the world of coffee: 
+The farmers feel enjoy their harvest, 
+Roasters feel enjoy unlocking flavors, 
+and as a barista, I feel the same when brewing this cup for you today.
 
-Hello judges! I’m Tuấn from Da Nang, a beautiful coastal city where life reminds us every day to pause and enjoy the present moment
-So, I was brewing coffee as a hobby. In those quiet moment, I simply feel the enjoyment
-And I see that enjoyment everywhere in the world of coffee: 
-The farmer enjoys their harvest, 
-Roasters enjoys unlocking flavors, 
-and as a barista, I enjoy brewing this cup for you right now.
+However, five years in coffee taught me that:  the personal enjoyment is only half the story. Real enjoy happens when we can transfer the joy from "me" to "us"
 
-However, five years in coffee taught me that:  personal enjoyment is only half the story. Joy becomes meaningful when it is shared - turning a 'me' into an 'us'."
-
-To bring that shared joy to this table today, I crafted a routine focused on three things: First : the right coffee,
+To share that enjoyment to you, I crafted a routine focused on three things: 
+First : the right coffee,
 Second : the right tools,
-An Final :  an simple recipe
+And the third :  an simple recipe
  
 (Option 2:  To bring it from me to us, today I will create a bridge that connect the enjoyment from me to it)
 
